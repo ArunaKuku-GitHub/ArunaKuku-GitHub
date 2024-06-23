@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ArunaKuku-GitHub
+- 👀 I’m interested in exploring the world
+- 🌱 I’m currently learning IT as well as reading for my masters in ICT in Sri Lankan University
